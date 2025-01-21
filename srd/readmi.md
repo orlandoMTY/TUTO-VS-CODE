@@ -6,5 +6,4 @@ Tampoco hay nadie que ame o busque o desee obtener el dolor en sí mismo,
 porque es dolor, sino porque ocasionalmente ocurren circunstancias en las que el trabajo y el dolor pueden procurarle un gran placer.
 Para tomar un ejemplo trivial, ¿quién de nosotros emprende alguna vez un ejercicio físico laborioso,
 excepto para obtener algún beneficio de él? Pero ¿quién tiene derecho a criticar a un hombre que elige disfrutar de un placer que no tiene consecuencias molestas,
-o a uno que evita un dolor que no produce placer resultante?"
-    
+o a uno que evita un dolor que no produce placer resultante?
